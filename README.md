@@ -1,4 +1,5 @@
 # Guidlines
+  - We are friends first, so please disagreements here Shold Not interfere with personal connections.
   - Everyone has to be nice to everyone
   - You should not be rude to anyone in chats and by no means you should say something that offends somebody.
   - Deadlines given are to be strictly followed.
